@@ -3,7 +3,7 @@
 
 💻 **Lecturer | Software Developer | Tech Enthusiast**  
 🚀 Passionate about **Web Development, AI, and Cybersecurity**  
-📍 Currently working as a **Lecturer (CSE) at TMSS Engineering College**
+📍 Currently working as a **Loyal husband towards wife**
 
 📫 How to reach me: solaiman76149@gmail.com
 
