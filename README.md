@@ -1,8 +1,8 @@
 ## Hello 👋
 **I am Sk Solaiman Abdullah**. 
 
-💻 **Lecturer | Software Developer | Tech Enthusiast**  
-🚀 Passionate about **Web Development, AI, and Cybersecurity**  
+💻 **Research Assistant (BioInformatics) | Former Lecturer**  
+🚀 Passionate about **BioInformatics, Biostatistics, Game Development and AI**  
 📍 Currently working as a **Loyal husband towards wife**
 
 📫 How to reach me: solaiman76149@gmail.com
