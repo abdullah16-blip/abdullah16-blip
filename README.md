@@ -3,7 +3,7 @@
 
 💻 **Research Assistant (BioInformatics) | Former Lecturer**  
 🚀 Passionate about **BioInformatics, Biostatistics, Game Development and AI**  
-📍 Currently working as a Research Assistant (BioInformatics)****
+📍 Currently working as a Research Assistant (BioInformatics)
 
 📫 How to reach me: solaiman76149@gmail.com
 
